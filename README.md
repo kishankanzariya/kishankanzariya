@@ -4,7 +4,7 @@
 
 
 # 💫 About Me:
-💻 Developer |<br>🚀 Tech Enthusiast <br>📚 Learning, building, improving every day<br>
+🚀 Tech Enthusiast <br>📚 Learning, building, improving every day<br>
 
 
 ## 🌐 Socials:
